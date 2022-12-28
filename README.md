@@ -1,0 +1,2 @@
+# Receita
+Prato do dia
